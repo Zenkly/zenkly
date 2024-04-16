@@ -19,7 +19,7 @@ I am currently pursuing a degree in Business Data Science at Universidad Rosario
 - **Bachelor of Physics**
   - *Universidad Nacional Autónoma de México, UNAM*
 - **Bachelor of Computer Systems**
-  - Instituto Consorcio Clavijer*
+  - Instituto Consorcio Clavijero
 
 
 ## 📫 Let's Connect!
